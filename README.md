@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yaashmita
-- 👀 I’m interested in Space and Astranomy
+- 👀 I’m interested in Space and Astronomy
 - 🌱 I’m currently learning Copado
 - 💞️ I’m looking to collaborate on Copado
 - 📫 How to reach me ...
